@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @p1naster
-- 👀 I’m interested in swimming,althought I don't think I'm really crazy about it.
+- 👀 I’m interested in swimming,although I don't think I'm really crazy about it.
 - 🌱 I’m currently learning English, Coding, AE.
 - 💞️ I’m looking to collaborate on making money.
 - 📫 How to reach me ... send mails to me ~ nixo3@hotmail.com
